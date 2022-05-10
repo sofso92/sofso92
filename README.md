@@ -2,7 +2,7 @@
 
 **I'm a Business IT Student**
 
-**Red River College - BIT**
+**at Red River College - Business Information Technology BIT**
 
 **Fall 2023 Graduation :smiley:**
 
