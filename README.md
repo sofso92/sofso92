@@ -1,10 +1,11 @@
 # Hello, my name is Sofia!
-**I'm a Business IT Student
-Red River College - BIT
-Fall 2023 Graduation :smiley:**
-'''
 
-'''
+**I'm a Business IT Student**
+
+**Red River College - BIT**
+
+**Fall 2023 Graduation :smiley:**
+
 contact info: sofso9214@gmail.com
 
 ### What I've learned 
