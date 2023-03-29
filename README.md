@@ -2,9 +2,9 @@
 
 **I'm a Business IT Student**
 
-**at Red River College - Business Information Technology BIT**
+**Red River College - Business Information Technology BIT**
 
-**Fall 2023 Graduation :smiley:**
+**December 2023 Graduation :smiley:**
 
 contact info: sofso9214@gmail.com
 
