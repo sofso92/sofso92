@@ -6,7 +6,7 @@
 
 **December 2023 Graduation :smiley:**
 
-contact info: sofso9214@gmail.com
+contact info: soriano.sofia.v@gmail.com
 
 ### What I've learned 
 
